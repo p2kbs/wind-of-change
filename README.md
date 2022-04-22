@@ -1,4 +1,4 @@
-# Scorpions (Band)
+# Scorpions (Band) 
 
 **Scorpions** ist eine deutsche *Hard-Rock-Band aus Hannover*, die 1965 als Nameless gegründet wurde, 1972 ihr erstes Album veröffentlichte und bis heute besteht. Die Scorpions Musikproduktions- und Verlags-GmbH hat ihren Sitz in Schwarmstedt (Heidekreis), die Scorpions GbR in Langenhagen (Region Hannover).
 
